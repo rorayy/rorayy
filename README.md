@@ -28,11 +28,7 @@ gravity falls, ghostbusters, forsaken, fnaf, the quarry, eddsworld, DC, marvel, 
 
 <h1 align="center">do not interact.</h1>
   <p align="center">
-DREAMSMP fandom or supporters, dream, tommyinnit, wilbur etc defenders, zionists, pro-genocide, minor indulging with nsfw, going to hate on my interests/ships interacting with me, edtwt/shedtwt, creeps, trump supporters, ai "artists", jschlatt fans, proship gtfo!!!, -13, kids in 18+ server
-    
-<h1 align="center">ships do not interact.</h1>
-  <p align="center">
-any incest/pedo ships, billdip, mabideon, dipeon, dipford, wendip, pinecest, stancest, dippercest, stoos, fordbel, sylki, hankcon, sidon x link
+DREAMSMP fandom or supporters, dream, tommyinnit, wilbur etc defenders, zionists, pro-genocide, minor indulging with nsfw, going to hate on my interests/ships interacting with me, edtwt/shedtwt, creeps, trump supporters, ai "artists", jschlatt fans, proship, -13, kids in 18+ server
 
 <h1 align="center">thin ice.</h1>
   <p align="center">
