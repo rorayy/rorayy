@@ -5,7 +5,7 @@
   <p align="center">
 🟢 online - feel free to int!<br/>
 🌙 away - off tab/afk/not really paying attention, whisp to int<br/>
-🛑 busy - do not interact unless on friends list. crowns ok!<br/>
+🛑 busy - dniuf / don't really want interaction (crowns ok ♡)<br/>
 💬 - looking for chat - interact!! i'm prob bored<br/>
 🎭 looking for roleplay - i don't really use this.<br/>
       <p align="center">
@@ -13,7 +13,7 @@ I normally play on the 18+ server and hangout in whichever fandom spot i'm fixat
 
   <p align="center">
 🐞 SOME OF MY INTERESTS! ✶⋆.˚ <br/>
-gravity falls, ghostbusters, forsaken, fnaf, the quarry, eddsworld, DC, marvel, tloz, overwatch, MLP, LPS, the office, modern family, stranger things, crk
+gravity falls, ghostbusters, stranger things, forsaken, fnaf, the quarry, eddsworld, DC, marvel, tloz, overwatch, MLP, LPS, the office, modern family, danganronpa
       <p align="center">
   <img src="https://github.com/user-attachments/assets/2ba6ebb1-bbe5-471b-b401-0a2aea120926" alt="Sublime's custom image"/>
 
@@ -28,7 +28,7 @@ gravity falls, ghostbusters, forsaken, fnaf, the quarry, eddsworld, DC, marvel, 
 
 <h1 align="center">do not interact.</h1>
   <p align="center">
-DREAMSMP fandom or supporters, dream, tommyinnit, wilbur etc defenders, zionists, pro-genocide, minor indulging with nsfw, going to hate on my interests/ships interacting with me, edtwt/shedtwt, creeps, trump supporters, ai "artists", jschlatt fans, proship, -13, kids in 18+ server
+proshippers, zionists, edtwt/shedtwt, pro-genocide, trump supporters, ai "artists", dreamsmp supporters, minor indulging with nsfw, jschlatt supporters, minors in the 18+ server, have "touch trigger"
 
 <h1 align="center">thin ice.</h1>
   <p align="center">
@@ -38,9 +38,7 @@ billcest shippers, jschlatt fans, minor making HEAVY nsfw jokes, intense dark hu
   <p align="center">
 - i am a nonsharing riako / gachikoi with stanford pines and harvey from stardew valley and will not interact with doubles for my own comfort!! nothing personal.
 - i need tone indicators(especially when making rude jokes towards me),
-- i am multifandom and a multishipper so don't follow for one thing
-- i repost a lot more than i actually post
-- i ship billford and repost/post about it sometimes.<br/>
+- i am kind of bad with social interaction and can come off shy/quiet at times, unless i'm with a group i feel most comfortable with usually. :)
       <p align="center">
 TRIGGERS: bugs, spiders, disturbing imagery, gore, any kind of abuse
 
