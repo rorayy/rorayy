@@ -66,13 +66,7 @@ TRIGGERS: bugs, spiders, disturbing imagery, gore, any kind of abuse
  <br/>
 
 ![GRAVITY FALLS STAMP](https://github.com/user-attachments/assets/22cf6cdc-7aeb-4309-9583-96c3f5e157f9) ![FNAF STAMP](https://github.com/user-attachments/assets/352e8f6c-da94-43a0-a502-44a3804ea598) ![MCU STAMP](https://github.com/user-attachments/assets/90b466fa-46e3-4973-8488-12d199dd3f34) ![DC/MARVEL STAMP](https://github.com/user-attachments/assets/b017e004-6e5f-4027-9bad-28d43958fe9c) ![GHOSTBUSTERS STAMP](https://github.com/user-attachments/assets/76b39819-18ca-40aa-8b35-823bf845e8aa) ![ROBLOX STAMP](https://github.com/user-attachments/assets/dffc12e4-e253-4e20-89e2-61c2488aab9f) ![MINECRAFT STAMP](https://github.com/user-attachments/assets/7553aa47-3bcd-41e3-8d92-9a35ba839d89) ![LPS STAMP](https://github.com/user-attachments/assets/e35a7c7d-c434-4379-9ba8-bdba094b0651)
-![IRON MAN1](https://github.com/user-attachments/assets/e1e33899-334c-4eb4-9315-17f7593ef9ca) ![IRON MAN2](https://github.com/user-attachments/assets/1e6ec410-565f-4d3a-9cf8-64282cc065ee)
-
-
-
-
-
-
+![IRON MAN STAMP1](https://github.com/user-attachments/assets/e1e33899-334c-4eb4-9315-17f7593ef9ca) ![IRON MAN STAMP2](https://github.com/user-attachments/assets/1e6ec410-565f-4d3a-9cf8-64282cc065ee) ![IRON MAN STAMP3](https://github.com/user-attachments/assets/62d2c422-1035-4641-9873-fe27f552c21e) ![TONY STARK STAMP1](https://github.com/user-attachments/assets/ac396feb-8101-4b19-8d3d-c26bbd43a153) ![TONY STARK STAMP2](https://github.com/user-attachments/assets/a071b3bd-a346-4d55-afaa-60c0efbe6d7c) ![TONY STARK STAMP3](https://github.com/user-attachments/assets/cf00c2cf-07f8-450f-920b-8a637eb5fcd2) ![CAPTAIN AMERICA STAMP](https://github.com/user-attachments/assets/cc674bea-c5a7-46d5-9510-9b3e39cdae0c) ![SPIDERMAN STAMP 1](https://github.com/user-attachments/assets/c5e553d0-f025-470f-8940-860500c75ec2) ![SPIDERMAN STAMP2](https://github.com/user-attachments/assets/4b8fa625-f25e-4ae4-b556-7c16e669332b)
 
 
 
