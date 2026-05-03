@@ -5,7 +5,7 @@
   <p align="center">
 🟢 online - feel free to int!<br/>
 🌙 away - off tab/afk/not really paying attention, whisp to int<br/>
-🛑 busy - dniuf / don't really want interaction (crowns ok ♡)<br/>
+🛑 busy - do not interact unless on friends list. crowns ok!<br/>
 💬 - looking for chat - interact!! i'm prob bored<br/>
 🎭 looking for roleplay - i don't really use this.<br/>
       <p align="center">
@@ -13,7 +13,7 @@ I normally play on the 18+ server and hangout in whichever fandom spot i'm fixat
 
   <p align="center">
 🐞 SOME OF MY INTERESTS! ✶⋆.˚ <br/>
-gravity falls, ghostbusters, stranger things, forsaken, fnaf, the quarry, eddsworld, DC, marvel, tloz, overwatch, MLP, LPS, the office, modern family, danganronpa
+gravity falls, ghostbusters, forsaken, fnaf, the quarry, eddsworld, DC, marvel, tloz, overwatch, MLP, LPS, the office, modern family, stranger things, crk
       <p align="center">
   <img src="https://github.com/user-attachments/assets/2ba6ebb1-bbe5-471b-b401-0a2aea120926" alt="Sublime's custom image"/>
 
@@ -28,7 +28,11 @@ gravity falls, ghostbusters, stranger things, forsaken, fnaf, the quarry, eddswo
 
 <h1 align="center">do not interact.</h1>
   <p align="center">
-proshippers, zionists, edtwt/shedtwt, pro-genocide, trump supporters, ai "artists", dreamsmp supporters, minor indulging with nsfw, jschlatt supporters, minors in the 18+ server, have "touch trigger"
+DREAMSMP fandom or supporters, dream, tommyinnit, wilbur etc defenders, zionists, pro-genocide, minor indulging with nsfw, going to hate on my interests/ships interacting with me, edtwt/shedtwt, creeps, trump supporters, ai "artists", jschlatt fans, proship gtfo!!!, -13, kids in 18+ server
+    
+<h1 align="center">ships do not interact.</h1>
+  <p align="center">
+any incest/pedo ships, billdip, mabideon, dipeon, dipford, wendip, pinecest, stancest, dippercest, stoos, fordbel, sylki, hankcon, sidon x link
 
 <h1 align="center">thin ice.</h1>
   <p align="center">
@@ -38,7 +42,9 @@ billcest shippers, jschlatt fans, minor making HEAVY nsfw jokes, intense dark hu
   <p align="center">
 - i am a nonsharing riako / gachikoi with stanford pines and harvey from stardew valley and will not interact with doubles for my own comfort!! nothing personal.
 - i need tone indicators(especially when making rude jokes towards me),
-- i am kind of bad with social interaction and can come off shy/quiet at times, unless i'm with a group i feel most comfortable with usually. :)
+- i am multifandom and a multishipper so don't follow for one thing
+- i repost a lot more than i actually post
+- i ship billford and repost/post about it sometimes.<br/>
       <p align="center">
 TRIGGERS: bugs, spiders, disturbing imagery, gore, any kind of abuse
 
@@ -59,7 +65,8 @@ TRIGGERS: bugs, spiders, disturbing imagery, gore, any kind of abuse
 
  <br/>
 
-![tumblr_478ce44470acc4a9c0004e8085b12549_133a0ec9_100](https://github.com/user-attachments/assets/bf2ac862-d934-4180-9fa0-229fc7adf959) ![tumblr_2b6bcd6d26c858e3856f6a7f6d04af1c_12342508_100](https://github.com/user-attachments/assets/adcc1762-d88b-462f-a24a-a7eb85726800) ![tumblr_32cdcdfa362ee4c6d15b1f651e6c5794_edec7dda_100](https://github.com/user-attachments/assets/3f90cd1d-5dfe-403e-8d59-c2627cff1845) ![tumblr_3be91c01bfb2af2556021ce0455a1293_60815299_100](https://github.com/user-attachments/assets/7b0c9709-09ce-4caf-86ae-7daa81f27c60) ![tumblr_2a2309a1fdfcb489374724a1f7bb56c1_355042b6_100](https://github.com/user-attachments/assets/8a464a7d-d3bc-4da8-ac95-31cc0b1caf12) ![tumblr_030c6d69e1b6f776fd8e5220e0569bfe_b5c2f615_100](https://github.com/user-attachments/assets/f4ad3e1e-8864-4f5b-99e1-3e8e2dad4c0f) <img width="99" height="55" alt="tumblr_4137d980102f55931df1fc9c5902e8c5_00da2df5_100" src="https://github.com/user-attachments/assets/ecf9beeb-2df9-4aee-961b-098b725995aa" /> ![tumblr_9f7aa7377efe3125cd1b656005fafed6_99913ea0_100](https://github.com/user-attachments/assets/a0cd010d-7236-4b8c-afa4-bdd1bf0d7d46) ![tumblr_02b460bff736929ce99ec36674097d59_f68e4c0b_100](https://github.com/user-attachments/assets/d9acc603-7b76-4ef1-af7c-0122bc07fd3e) <img width="99" height="56" alt="tumblr_3aae2284d1c3228f8897fa20ae8fa5d9_0c0cfa9f_100" src="https://github.com/user-attachments/assets/e6a855b8-679f-4fb5-9797-5fa0abd86bd1" /> ![tumblr_e17190ad2b92f1c3868a301d228f1809_67056190_100](https://github.com/user-attachments/assets/954634eb-d35e-42e6-9860-87f1457ebb72) <img width="99" height="56" alt="tumblr_37979fe0742e53dc8400a59078dded9b_59ddc46e_100" src="https://github.com/user-attachments/assets/4358caf8-64bf-42a2-99f7-beb64382544a" /> ![tumblr_907a337a89860f243b2eabb3b9857376_f2380064_100](https://github.com/user-attachments/assets/327380e7-ee21-4c2a-bf9b-264576d9939c) ![tumblr_56cfed7ac6cab4f38fce598d75e7d198_7ae269df_100](https://github.com/user-attachments/assets/7df99662-0b25-4f7c-8e26-da1e337e2b43) <img width="99" height="56" alt="tumblr_79b00071f6401ac50952e8983ea529c7_1ba65c63_100" src="https://github.com/user-attachments/assets/28e7bec7-4d5c-4a11-a5f1-44969408c9e9" /> <img width="99" height="56" alt="tumblr_c6a85189a09da34c5749967bb1941dcd_a3120283_100" src="https://github.com/user-attachments/assets/b7f5d49d-f4ef-412a-b045-1cdd13d6fe3c" /> <img width="99" height="56" alt="tumblr_2eef849755e1f906b008c5fa29ff1c60_b57c7df9_100" src="https://github.com/user-attachments/assets/b4b4cf76-cb51-419f-b82a-6e5db4a08be8" /> <img width="99" height="57" alt="tumblr_6c54bcc7cdc3d2011c5f384ba9119c71_079f4a0d_100" src="https://github.com/user-attachments/assets/a779f9b8-b028-4caa-be7d-18db49ff0457" /> <img width="99" height="55" alt="tumblr_f16d6f34c5197023452bdec3ad0a89cd_ae034d56_100" src="https://github.com/user-attachments/assets/93cc9f2a-9de4-435f-9ea8-23aca94979e0" /> ![tumblr_de5113c3cd03b1df31ce6e1380e147b7_f3f7fb40_100](https://github.com/user-attachments/assets/966b9565-db17-497e-8691-934429afd6fe) <img width="105" height="60" alt="tumblr_deb34a31fafc1b478ff44450a7cd1b89_ede608d3_250" src="https://github.com/user-attachments/assets/2dbf590f-8437-4287-b7f8-92e92ad60cba" /> ![tumblr_9d47d4fcb26b6a90a878de49fb92219f_4e5689e1_100](https://github.com/user-attachments/assets/dca3f76f-ed84-4f88-88d5-0b4db497cc7f) <img width="99" height="56" alt="tumblr_b265786675e20916d180f52a65a0dce0_c464923f_100" src="https://github.com/user-attachments/assets/d279da31-808c-493e-b881-866a42fb5b3a" /> <img width="99" height="57" alt="tumblr_942111ffd6d607d9f0cb5f723b673af9_f23c4942_100" src="https://github.com/user-attachments/assets/aa6a29d4-9252-48e2-896c-314387674773" /> ![tumblr_8c34052536d9f1e8be6b1ea6a0fe121f_4dd691d6_100](https://github.com/user-attachments/assets/78fcfc27-9953-4cf9-a0a2-3f03bac96de1) ![tumblr_584c078394b2ccb1c4e1509835187774_03d41183_100](https://github.com/user-attachments/assets/75f51f25-4b18-4cc1-b8d7-a343b375c6fc) ![tumblr_e496114841373a8802a4a254b6f70236_d2d921aa_100](https://github.com/user-attachments/assets/c1e65133-efb7-4091-a8c9-a356341b73d4) ![tumblr_ea0d38b5644f3dbdfc869dde4aa56593_aa35c060_100](https://github.com/user-attachments/assets/c5483c43-603f-4581-9ece-809fa0a669b0) ![tumblr_63a67dc1b9aeb1faac06c412634747fd_31851ea4_100](https://github.com/user-attachments/assets/5c615c38-b4e1-430f-8f88-e0881f4eb1c7) ![tumblr_c7c0252d1464eb92e882fe84fa0ffe44_2ea668e5_100](https://github.com/user-attachments/assets/f520282e-1eb5-4805-ae90-1d6a656fc802) <img width="99" height="56" alt="tumblr_8607ef4c4d0ed133273c5f5669232db8_d35598b1_100" src="https://github.com/user-attachments/assets/eb59a567-c7a9-4bbc-9db7-9e804f01e5b7" /> ![tumblr_f95177039230be72214f3a68f67e043b_52160c74_100](https://github.com/user-attachments/assets/2e7a88c9-fe98-47ce-b95e-e73a49668955) <img width="99" height="56" alt="tumblr_inline_rbs8ouTabF1vefsve_500" src="https://github.com/user-attachments/assets/541d3c71-9b4c-4a42-940d-8906a4acf681" /> ![glowstamp](https://github.com/user-attachments/assets/4da9d148-b8e1-43ef-806f-a2c9a877cdf1) ![tumblr_6c296a1a08276f5c1cbc19ed240cea57_181188c4_100](https://github.com/user-attachments/assets/8685a9f5-59a3-4c98-aa6b-04e7ef78834b) ![tumblr_f9843fbbad60451343dc36dc873e6066_16eabe93_100](https://github.com/user-attachments/assets/1007027c-ef2f-4093-bf27-9896e1a2996f) ![tumblr_8f39fead6f5c7e38505dc14b6015ba2f_08508a37_100](https://github.com/user-attachments/assets/f450c5d7-1860-49a5-900c-32701059cf32) ![tumblr_cd1891cec770ff15eb1d2002b7da8bab_febfcd3c_100](https://github.com/user-attachments/assets/2c95efc1-3e9b-4586-b8c3-2fadc753c55e) <img width="98" height="59" alt="tumblr_65fc46666f18b83cea10e378e937e913_93b0a67a_100" src="https://github.com/user-attachments/assets/7e4ebd64-ff3c-4d94-9dda-60df70d5b303" /> <img width="99" height="56" alt="tumblr_e97dab615eb3d5484e51453fd1790198_f982c521_100" src="https://github.com/user-attachments/assets/0cd50b42-5b30-475f-9f08-a3bbd87ccc0f" />
+![GRAVITY FALLS STAMP](https://github.com/user-attachments/assets/22cf6cdc-7aeb-4309-9583-96c3f5e157f9) ![FNAF STAMP](https://github.com/user-attachments/assets/352e8f6c-da94-43a0-a502-44a3804ea598) ![MCU STAMP](https://github.com/user-attachments/assets/90b466fa-46e3-4973-8488-12d199dd3f34) ![DC/MARVEL STAMP](https://github.com/user-attachments/assets/b017e004-6e5f-4027-9bad-28d43958fe9c) ![GHOSTBUSTERS STAMP](https://github.com/user-attachments/assets/76b39819-18ca-40aa-8b35-823bf845e8aa) ![ROBLOX STAMP](https://github.com/user-attachments/assets/dffc12e4-e253-4e20-89e2-61c2488aab9f) ![MINECRAFT STAMP](https://github.com/user-attachments/assets/7553aa47-3bcd-41e3-8d92-9a35ba839d89) ![LPS STAMP](https://github.com/user-attachments/assets/e35a7c7d-c434-4379-9ba8-bdba094b0651)
+![IRON MAN1](https://github.com/user-attachments/assets/e1e33899-334c-4eb4-9315-17f7593ef9ca) ![IRON MAN2](https://github.com/user-attachments/assets/1e6ec410-565f-4d3a-9cf8-64282cc065ee)
 
 
 
@@ -68,6 +75,13 @@ TRIGGERS: bugs, spiders, disturbing imagery, gore, any kind of abuse
 
 
 
+
+
+
+
+
+
+<img width="220" height="220" alt="da6de031-6b13-47e3-b051-ae01b5ad21dc" src="https://github.com/user-attachments/assets/ea8c3035-9474-43d9-9ba1-058f4b08879d" />
 
 
 
