@@ -76,8 +76,10 @@ TRIGGERS: bugs, spiders, disturbing imagery, gore, any kind of abuse
 
 
 
+<p align="center">
 
 <img width="220" height="220" alt="da6de031-6b13-47e3-b051-ae01b5ad21dc" src="https://github.com/user-attachments/assets/ea8c3035-9474-43d9-9ba1-058f4b08879d" />
+</p>
 
 
 
