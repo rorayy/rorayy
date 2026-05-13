@@ -9,7 +9,7 @@
 💬 - looking for chat - interact!! i'm prob bored<br/>
 🎭 looking for roleplay - i don't really use this.<br/>
       <p align="center">
-I normally play on the 18+ server and hangout in whichever fandom spot i'm fixated on!
+I normally play on the 18+ server and hangout underneath the bakery :)
 
   <p align="center">
 🐞 SOME OF MY INTERESTS! ✶⋆.˚ <br/>
