@@ -13,7 +13,7 @@ I normally play on the 18+ server and hangout underneath the bakery :)
 
   <p align="center">
 🐞 SOME OF MY INTERESTS! ✶⋆.˚ <br/>
-gravity falls, marvel, dc, ghostbusters, stardew valley, eddsworld, stranger things, fnaf, mlp, the office, modern family, tloz
+gravity falls, marvel, dc, ghostbusters, stardew valley, eddsworld, stranger things, fnaf, mlp, the office, modern family, tloz, phantom of the opera
       <p align="center">
   <img src="https://github.com/user-attachments/assets/2ba6ebb1-bbe5-471b-b401-0a2aea120926" alt="Sublime's custom image"/>
 
@@ -41,6 +41,7 @@ billcest shippers, jschlatt fans, minor making HEAVY nsfw jokes, intense dark hu
 <h1 align="center">before you interact!</h1>
   <p align="center">
 - i selfship! i am nonsharing with a lot of my f/os, if you'd like to know more about how i selfship, check out my main strawpage!
+    (nonsharing with stanford pines + jake wyler + harvey from stardew)
 - i need tone indicators(especially when making rude jokes towards me),
 - i am multifandom and a multishipper so don't follow for one thing
 - i repost a lot more than i actually post
